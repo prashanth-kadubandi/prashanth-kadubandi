@@ -51,7 +51,7 @@ Backend / Platform / Distributed Systems roles
 
 ## 📬 Connect
 
-* LinkedIn: *(add your link here)*
+LinkedIn: www.linkedin.com/in/prasanth-kadubandi
 
 ---
 
